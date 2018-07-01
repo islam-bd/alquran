@@ -1,6 +1,6 @@
 # Quran Verses for Praying to Allah
 
-* [When YOu are sad](http://tanzil.net/res/audio/afasy/002025.mp3)
+* [When You are sad](http://tanzil.net/res/audio/afasy/002025.mp3)
 
 * [You have sinned](http://tanzil.net/res/audio/afasy/039053.mp3)
 
